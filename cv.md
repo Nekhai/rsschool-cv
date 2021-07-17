@@ -16,3 +16,9 @@ I have basic skills in:
 - SCC
 - Git
 - BEM
+
+I have finished online course freeCodeCamp "Responsive Web Design",
+
+Graduated from Ternopil State Technical University named after Ivan Pului 2006-2011, on speciality "Food technology and engineering"
+
+English level Intermediate
