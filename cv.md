@@ -6,7 +6,8 @@
 Nekhaiyurii@gmail.com
 
 For fifteen years I worked in the food processing engineering.
-I have good team experience and management skills.
+Now I want to change the field of professional activity.
+I have good team experience and management skills, I want to learn new technologies and tools
 
 I have basic skills in:
 
